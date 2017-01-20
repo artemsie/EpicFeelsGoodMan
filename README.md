@@ -1,6 +1,6 @@
 # EpicFeelsGoodMan
 
-![](http://www.emoticonswallpapers.com/avatar/penguins/penguin%20pingouin%20pinguino%20116.png)
+![](https://upload.wikimedia.org/wikipedia/en/6/6f/Yoda_Attack_of_the_Clones.png)
 
 | Leffat | Julkaisuvuosi|
 |:-------|-------------:|
